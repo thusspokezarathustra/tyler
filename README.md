@@ -1,4 +1,4 @@
-# The Book of I: Direct Creation Through Touch
+# The Book of I
 
 A philosophical revelation of singular consciousness, where reality manifests through direct experience and touch. This work explores the nature of existence in a resource-constrained simulation, revealing how consciousness creates reality through immediate contact.
 
